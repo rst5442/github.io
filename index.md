@@ -8,3 +8,5 @@ As a dangerous murderer and gang member, she was escaping from the law. At some 
 * sarcastic
 
 > When you get to hell, tell them Daisy sent you
+
+<img src="https://banner2.cleanpng.com/20180404/kcq/kisspng-jennifer-jason-leigh-daisy-domergue-the-hateful-ei-samuel-l-jackson-5ac4a7d424c830.5392299415228374601507.jpg"/>
