@@ -7,3 +7,4 @@ As a dangerous murderer and gang member, she was escaping from the law. At some 
 * cruel
 * sarcastic
 
+> When you get to hell, tell them Daisy sent you
